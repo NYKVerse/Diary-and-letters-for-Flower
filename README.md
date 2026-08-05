@@ -12,8 +12,6 @@ But if we ended up being apart, I think that's alright, as long as you get the b
 ## Piece 2 - "Future"
 Sometimes I don't know whether I wanted to continue being me, putting efforts to stuff, pushing myself above the limits, but just for the sake of our peaceful future, I'd do anything, even if it cost me my soul. I'd sell my soul and bones just to keep you and our daughters and sons safe.
 
-The word "Somehow you know me, but I've lost myself. but when I'm around you I'm somebody else" I hope you'll understand this verse soon.
-
 ## Piece 3 - "Drifting"
-.
+Sometimes I feel like we're drifting apart, though it's probably because we're both busy
 
